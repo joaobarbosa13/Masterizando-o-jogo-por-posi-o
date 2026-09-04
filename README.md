@@ -83,9 +83,13 @@ PILAR 2: A Busca pelas Superioridades
 O Jogo de Posição opera para gerar quatro tipos de vantagens táticas atrás de cada linha de pressão do oponente:
 
 Superioridade Numérica: Ter mais jogadores que o adversário na zona da bola (ex: recuar o volante para construir em 3v2 contra os atacantes adversários, conhecido como Salida Lavolpiana).
+
 Superioridade Posicional: Estar posicionado nos "meio-espaços" ou entrelinhas, onde o jogador recebe a bola de costas para a defesa adversária, mas consegue girar livremente de frente para o jogo.
+
 Superioridade Qualitativa: Isolar seu atleta mais habilidoso (o ponta) em um duelo de 1v1 contra o defensor mais lento ou fraco deles.
+
 Superioridade Socioafetiva: A química e o entendimento cego gerados entre os atletas através da repetição exaustiva dos mesmos padrões de movimento.
+
 Como aplicar de forma simples: Instile a mentalidade de "atrair para liberar". Estimule passes curtos em uma lateral para aglomerar marcadores adversários e, rapidamente, inverta a bola com um passe longo diagonal para o ponta isolado no 1v1 do lado oposto.
 
 PILAR 3: O "Homem Livre" (Hombre Libre)
